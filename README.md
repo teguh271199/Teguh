@@ -1,0 +1,2 @@
+# Teguh
+STMIK AKAKOM
